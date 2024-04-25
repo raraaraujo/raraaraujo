@@ -13,4 +13,5 @@ alurastartestudante@email.com
 
 @alurastartestudante
 
-![](https://tenor.com/pt-BR/view/emmanuel-jdz-gif-24502401)
+![](https://media.tenor.com/zqWg3rM-WCgAAAAj/shrek-mike-wazowski.gif) 
+![](https://media1.tenor.com/m/oXE-MilclX8AAAAd/sherek-brasil.gif)
